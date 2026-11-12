@@ -1,0 +1,2 @@
+# listadwukierunkowa
+spokolista
